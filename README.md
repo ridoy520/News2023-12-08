@@ -53,7 +53,9 @@
 ইউরোপীয় ইউনিয়ন রাশিয়া থেকে তেল আমদানি বন্ধ করার সিদ্ধান্ত নিয়েছে।
 এগুলো হল আজকের জনপ্রিয় সত্য খবরগুলো। এই খবরগুলো বিশ্বের বিভিন্ন বিষয়কে তুলে ধরে।
 
-
+Amazon Essentials Men's Full-Zip Fleece Jacket (Available in Big & Tall)
+Details:
+https://amzn.to/3uQl1VZ
 
 
 আরো খবর:
@@ -119,6 +121,9 @@
 বাংলাদেশের ক্রিকেট দল আজ একটি আন্তর্জাতিক ক্রিকেট ম্যাচ খেলবে।
 ম্যাচটি বাংলাদেশ ও শ্রীলঙ্কার মধ্যে অনুষ্ঠিত হবে।
 
+Google Pixel 8 - Unlocked Android Smartphone with Advanced Pixel Camera, 24-Hour Battery, and Powerful Security - Obsidian - 128 GB
+Details:
+https://amzn.to/3R6dKZG
 
 আরো খবর:
 
